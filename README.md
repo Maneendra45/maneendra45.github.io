@@ -1,1 +1,1 @@
-# maneendra45.repository.io
+# maneendra45.github.io
